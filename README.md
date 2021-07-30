@@ -1,5 +1,5 @@
 - Hello everyone👋, greetings here 👀.
-- I'm from Politeknik Elektronika Negeri 1 Surabaya.
+- I'm from Politeknik Elektronika Negeri  Surabaya.
 - 📫let's Connect with me. 
 - Link in   : https://www.linkedin.com/in/ahmad-shonhaji-892b4a218/ 
 - Whatsapp  : +62 8257-70748-2614 
